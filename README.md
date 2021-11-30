@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @GOKULRAJ75
 - 👀 I’m interested in ...
-- 🌱 I’m currently learning Btech in computer scicene with spl. in ARTIFICIAL INTELLIGIENCE AND MACHINE LEARNING
+- 🌱 I’m currently pursing ARTIFICIAL INTELLIGIENCE AND MACHINE LEARNING in VIT-chennai
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me @gokulrajs2004@gmail.com
 
